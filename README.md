@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Jai Ganesh
-**A passionate Cloud Engineer || DevOps Engineer || Jai ganesg from India**
+**A passionate Cloud Engineer || DevOps Engineer || Jai ganesh from India**
 
 Email Me 👉 ✉️ **NobalMinecraft2@outlook.com** For Collaboration/Project or Anything Else. 😊😊
 
